@@ -167,7 +167,8 @@ aufgeregt- upset/ disappointment
 bei mir vorbei -stop by me/stop at me
 Auftrag- order / assignment
 mitmacht - to support
-sorgen - to procure
+sorgen - take care
+besorgen - to procure
 Stimmung - mood
 beinzubringen - to contibute
 Tanzflaeche - dance floor
