@@ -45,6 +45,7 @@ Mein Wortschatz
 *************************
 Latest
 
+bekunden - to express, to manifest, to declare, to show
 empfinden - to feel
 Widmen- dedicate
 Uebungen - exercise
